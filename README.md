@@ -39,7 +39,7 @@ Welcome to my GitHub Portfolio
 
 ## Contact
 
-Email: brykelapipuemail.com
+Email: brykelapipu@gmail.com
 
 LinkedIn:
-(Add your LinkedIn)
+Brykel Apipu
